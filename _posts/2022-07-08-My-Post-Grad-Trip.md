@@ -8,7 +8,7 @@ Throughout the fourteen days, we saw sights in Athens, Paros, Santorini, and the
 
 Luckily, we had no problems with our flight to Athens (except for a two hour delay) and arrived safely. The first thing we did was shower. It was only 7pm but we were both growing tired after a long flight and headed out to Ella Greek Cooking for a quick and delicious dinner. 
 
-![Our first meal in Greece! We recommend](/Users/audreyma/Desktop/Personal/audreyma50.github.io/images/2022-07-08-My-Post-Grad-Trip/ella_greek_cooking.HEIC)
+![Our first meal in Greece! We recommend](/Users/audreyma/Desktop/Personal/audreyma50.github.io/images/2022-07-08-My-Post-Grad-Trip/ella_greek_cooking.png)
 
 Despite both being tired, we couldn't really sleep the first night. Luckily, that somehow made waking up at 7AM was a lot easier. Heading to the Acropolis at 8am, we originally started listening to every audio description for every site leading up to the Parthenon. Don't do that. Unless you want to spend hours there! As a growing number of crowds started passing us, we instantly realized that we needed to head to the top before it got too crowded and hot. 
 
@@ -29,7 +29,7 @@ We finished the evening "hiking" up Filopappou Hill for a beautiful sunset (high
 ### Athens Day 2
 We started off the day climbing Mount Lycabettus at 8am! It's about an easy 15 minute hike and the views are magnificent! To be honest, most of our hike was getting to the trailhead. 
 
-Then we headed to The Clumsies...for brunch! Their Aegean Negroni was voted best cocktail in 2019 so of course I had to get it. I didn't know what a Negroni was before this but I don't like it. Otherwise, the food hit and the ambiance was quite calm at least during the day time! 
+Then we headed to The Clumsies...for brunch! Their Aegean Negroni was voted best cocktail in 2019 so of course I had to get it. I didn't know what a Negroni was before this but I don't think I'll be getting it again. Otherwise, the food hit and the ambiance was quite calm at least during the day time! 
 
 ### Paros
 Paros was a much needed break after all the running around in Athens. Pretty much the biggest things to do here is to just chill at the beach...so that's what we did! 
